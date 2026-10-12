@@ -1,0 +1,2 @@
+# premium-resin-art-001-resin-art-epoxy-crafting-stu
+Stop juggling sticky notes, messy spreadsheets, and forgotten cure times. The Resin Art &amp; Epoxy Crafting Studio - Notion Template Bundle transforms your chaotic resin workflow into a streamlined, organized studio—so you can spend less time tracking supplies and more time creating flawless pours.  This bundle eliminates the guesswork of resin crafti
